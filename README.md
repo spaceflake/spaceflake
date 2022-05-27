@@ -5,9 +5,9 @@ Welcome to my little corner of Github.
 
 👀 I’m in **love** with web development. I really like exploring different technologies and taking new approaches to solve problems. Curious by heart and dedicated to learn.
 
-I also love gaming. Spending some of my spare time on my Xbox, but also play games on PC. 
-
 🌱 I’m currently learning as much as I can. Some of my techstack can be seen below.
+
+🎮 I also love gaming. Spending some of my spare time on my Xbox, but also play games on PC. 
 
 💞️ I’m looking for an internship fall 2022.
 
