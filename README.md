@@ -8,7 +8,7 @@ I also love gaming. Spending some of my spare time on my Xbox, but also play gam
 
 🌱 I’m currently learning as much as I can. Honing my skills in HTML, CSS and Javascript/Typescript. Other technologies I like React, Next, Svelte.
 
-💞️ I’m looking to for an internship fall 2022.
+💞️ I’m looking for an internship fall 2022.
 
 
 ### Contact
