@@ -9,7 +9,7 @@ Welcome to my little corner of Github.
 
 🎮 I also love gaming. Spending some of my spare time on my Xbox, but also play games on PC. 
 
-💞️ I’m looking for an internship fall 2022.
+💞️ I’m looking for an internship Spring 2023. Start end of January. 
 
 
 ## 🌐 Reach out to me
