@@ -9,7 +9,7 @@ Welcome to my little corner of Github.
 
 🎮 I also love gaming. Spending some of my spare time on my Xbox, but also play games on PC. 
 
-💞️ I’m looking for an internship Spring 2023. Start end of January. 
+💞️ Currently an Intern at Kruso.
 
 
 ## 🌐 Reach out to me
